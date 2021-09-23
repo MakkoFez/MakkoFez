@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MakkoFez, hope you hear about me... maybe... dk(?;
+- 👀 I’m interested in program design and game developer
+- 🌱 I’m currently learning about Programming language in the UTN and walking dogs for living
+- 📫 You can reach me in https://www.linkedin.com/in/marcos-ravera-644aa7b8/
